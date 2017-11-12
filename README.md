@@ -1,4 +1,4 @@
-tl;dr: We were looking for some graphics for our (really silly) Patreon rewards tiers. June made us some tiles inspired by one of her mobile gaming faves.
+tl;dr: We needed graphics for our (really silly) Patreon rewards tiers. June made us some tiles inspired by one of her mobile gaming faves.
 
 Like it? Slap it on a tee-shirt, put it on a sticker at <a href="https://www.redbubble.com/people/thirtythreedown/works/28857137-2048-tile">Red Bubble</a>.
 
