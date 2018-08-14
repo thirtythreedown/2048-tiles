@@ -1,4 +1,4 @@
-We needed graphics for our (really silly) Patreon rewards tiers.We made some tiles inspired by a mobile gaming fave.
+We needed graphics for our (really silly) Patreon rewards tiers. We made some tiles inspired by a mobile gaming fave.
 
 Like it? Slap it on a tee-shirt, put it on a sticker at <a href="https://www.redbubble.com/people/thirtythreedown/works/28857137-2048-tile">Red Bubble</a>.
 
